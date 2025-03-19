@@ -1,4 +1,4 @@
-## Hi there 👋
+![Views Counter](https://komarev.com/ghpvc/?username=your-github-username)
 
 <!--
 **Remnantrails/Remnantrails** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
