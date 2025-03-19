@@ -2,6 +2,7 @@
 
 </div> <div align="center">   ⠀⠀
 </div> <div align="center">William  </div>  
+</div> <div align="center"> ────────────
 </div> <div align="center"> ୭ We are bodily 21, and part of a system, do not treat me like my source or act weird. There is too much of that around.
 </div> <div align="center"> ୭ I do not enjoy being around kids at all and don't want to be bothered by them, so, minors keep away, thanks. I'll just hide you if I suspect you're a minor, I have better things to do than argue. </div> 
 </div> <div align="center"> ୭ Our other system members can be found<a href="https://rentry.co/VenomLogang">HERE</a> </div>
