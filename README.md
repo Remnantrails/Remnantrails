@@ -1,16 +1,16 @@
 ![Views Counter](https://komarev.com/ghpvc/?username=remnantrails)
 
-<!--
-**Remnantrails/Remnantrails** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+</div> <div align="center">   ⠀⠀
+</div> <div align="center">William  </div>  
+</div> <div align="center"> He/Him</a> </div> 
+</div> <div align="center"> We are bodily 21, and part of a system. I do not enjoy being around kids at all and don't want to be bothered by them, so, minors keep away, thanks. I'll just hide you if I suspect you're a minor, I have better things to do than argue. </div> 
+</div> <div align="center"> Our other system members can be found<a href="https://rentry.co/VenomLogang">HERE</a> </div>
+</div> <div align="center"> If I ignore you, it probably isn't personal. I just don't want to interact with everyone I come across. Just because it's a social game doesn't mean I owe you anything. 
+</div> <div align="center"> List of people I'm likely to be sat with <a href="https://rentry.co/VenomFriends">HERE</a>
+</div> <div align="center"> 
+  </div> <div align="center"> 
+</div> <div align="center"> sign the <a href="https://escortingmen.atabook.org">ata</a> & draw on the <a href="https://venomsparx.straw.page">strawpage</a>
+  </div> <div align="center">   ⠀⠀
+     </div> <div align="center">   
+      
+![D6phQTDU8AA4ln9](https://github.com/user-attachments/assets/ad2e305b-36a8-46bc-a9f1-5c84d5643541)
