@@ -10,7 +10,7 @@
 </div> <div align="center"> A reminder that we do not support the BlueyCapsules creator.
 </div> <div align="center"> 
   </div> <div align="center"> 
-</div> <div align="center"> sign the <a href="https://escortingmen.atabook.org">ata</a> & draw on the <a href="https://venomsparx.straw.page">strawpage</a>
+</div> <div align="center"> Sign the <a href="https://escortingmen.atabook.org">ATA</a> & draw on the <a href="https://venomsparx.straw.page">Strawpage</a>
   </div> <div align="center">   ⠀⠀
      </div> <div align="center">   
       
